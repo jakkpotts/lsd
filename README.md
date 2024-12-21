@@ -1,4 +1,4 @@
-# **LSD Synthesis with Purification Steps and Specific Levels/Amounts**
+# **LSD Synthesis with Purification Steps and Specific Measurements**
 
 ## **1. Starting Materials**  
 - **Lysergic Acid** – Provides the chemical backbone for LSD.  
